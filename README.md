@@ -1,1 +1,2 @@
-# Treatments-for-Anxiety-and-Depression
+# Treatments for Anxiety and Depression
+Selective serotonin reuptake inhibitors (SSRIs) are a class of drugs that doctors consider first-line [Treatments for Anxiety and Depression](https://mindbodycenters.com/services/depression/) . SSRIs work by increasing the level of serotonin in the brain. Serotonin is a molecule that has important bodily roles , including regulating mood and behavior. Psychotherapy. Also known as talk therapy or psychological counseling, psychotherapy involves working with a therapist to reduce your anxiety symptoms. It can be an effective treatment for anxiety. Cognitive behavioral therapy (CBT) is the most effective form of psychotherapy for anxiety disorders.
